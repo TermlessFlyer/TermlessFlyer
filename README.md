@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TermlessFlyer
+- 👀 I’m interested in engineering and video game design
+- 🌱 I’m currently studying robotics @ Heriot-Watt Uni
+- 📫 How to reach me cbmack@sky.com
